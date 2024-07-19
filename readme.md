@@ -1,1 +1,0 @@
-Hello my name is Arya, i am a programmer. I am learning at timedoors. my teacher is mr Wahyu 
